@@ -1,4 +1,5 @@
  allainnn.github.io
 *Gabriel Allain Roco*                               
-# Top 10 Best Basketball Shoes of 2023
-These are the best hooping shoes of the year 2023. Each shoe is ranked by overall looks and performance like traction, cushion, weight, materials, support, and looks/design. These are based on consumer's reviews
+# All About Paramore
+![](https://best-fit.transforms.svdcdn.com/production/portraits/PARAMORE-TLOBF-2_Lead_best_fit_exclusive.jpeg?w=1200&h=800&q=100&auto=format&fit=crop&dm=1675630672&s=1ef53483fbdcbedd88c05d8e7e787868)
+Paramore is an American rock band from Franklin, Tennessee, formed in 2004. The band currently consists of lead vocalist Hayley Williams, guitarist Taylor York and drummer Zac Farro. Williams and Farro are founding members of the group, while York, a high school friend of the original lineup, joined in 2007. The band is signed to Fueled by Ramen, a subsidiary of Atlantic Records, both owned by Warner Music Group. Williams was separately signed to Atlantic as she was scouted when she was a teenager, and they were the only label to let her stay in the band instead of going solo, but Atlantic said the rest of the band had to sign to Fueled by Ramen. She is also the only member to appear on all six of Paramore's studio albums
