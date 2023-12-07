@@ -2,4 +2,4 @@
 
 
 *Gabriel Allain Roco*                               
-![dubi](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.adidas.com.ph%2Fharden-vol.-7-shoes%2FID2237.html&psig=AOvVaw1D3rqExY7lZdagZLjOpHAa&ust=1702002159613000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCPijlNal_IIDFQAAAAAdAAAAABAD)
+![](https://assets.adidas.com/images/w_600,f_auto,q_auto/b76009337ba04983baedafcb0114c6f5_9366/Harden_Vol._7_Shoes_Orange_ID2237_01_standard.jpg)
